@@ -1,5 +1,4 @@
-# 💫 About Me:
-Hi 👋, I'm Hitesh kumar
+# Hi 👋, I'm Hitesh kumar
 
 
 ## 🌐 Socials:
